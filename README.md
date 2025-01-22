@@ -1,16 +1,15 @@
-## Hi there 👋
+HELLO!! ITS ME, BLACKROCKS GREATEST!
 
-<!--
-**forxstz/forxstz** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-
-Here are some ideas to get you started:
-
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+INFO ABOUT ME:
+- I am a minor, please be wary when you int with me.
+- Possible Medkit kin???
+- ILY HUSBNAD ILYILYILYILYILYILY <333
+- I love roleplaying and being around other people!
+- I love making gift skins with my husband <33
+- I am very forgetful at times, dont expect me to remember stuff man
+- PLEASEONMYMAMASGRAVEDONOTCOPYMYSKINSIWILLMANSLAUGHTERYOUIFYOUDO
+- I dont have much DNI's, but i guess DNI if your a literal weirdo, and also dni fatherless jokes, that actually hurts.
+- possible ADHD hazard!?!?!??
+- I LOVE TO VC, I LOVE TO TALK!!!!!
+- I am INSANELY silly and cheerful, do not expect me to be srs unless im roleplaying
+- please dni subkit haters, please. i respect your opinion but do not shove your opinion in my face </3
