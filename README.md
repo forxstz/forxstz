@@ -2,7 +2,7 @@
 
 ✧ ⋆ ✧ ⋆ ✧ ⋆ ✧ ⋆ ✧ ⋆ ✧ ⋆ ✧ ⋆ ✧ ⋆ ✧ 
 
-- INFO ABOUT ME:
+⋆ INFO ABOUT ME:
 
 - I am a minor, please be wary when you int with me.
 - Possible Medkit kin???
