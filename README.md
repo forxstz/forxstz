@@ -1,4 +1,4 @@
-ﾟ｡⋆… `` HELLO!! ITS ME, BLACKROCKS GREATEST! ,,
+ﾟ｡⋆… `` Let the experiment commence!! ,,
 
 ✧ ⋆ ✧ ⋆ ✧ ⋆ ✧ ⋆ ✧ ⋆ ✧ ⋆ ✧ ⋆ ✧ ⋆ ✧ 
 
