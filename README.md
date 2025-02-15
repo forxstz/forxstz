@@ -15,3 +15,4 @@
 - I LOVE TO VC, I LOVE TO TALK!!!!!
 - I am INSANELY silly and cheerful, do not expect me to be srs unless im roleplaying
 - please dni subkit and medhammer haters, please. i respect your opinion but do not shove your opinion in my face </3
+- words tend to come out of my mouth wrong... and i'm so sorry, meddy. i'm so, so sorry.
