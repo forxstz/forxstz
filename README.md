@@ -5,7 +5,7 @@
 ⋆ INFO ABOUT ME:
 
 - I am a minor, please be wary when you int with me.
-- Possible Medkit kin???
+- Possible Medkit and Broken Spawn kin???
 - I love roleplaying and being around other people!
 - I love making gift skins with my best friend <33
 - I am very forgetful at times, dont expect me to remember stuff man
