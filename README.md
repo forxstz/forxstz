@@ -1,4 +1,4 @@
-ﾟ｡⋆… `` I'm trying my best! ,,
+ﾟ｡⋆… `` Good evening, Welcome to the clinic. ,,
 
 ✧ ⋆ ✧ ⋆ ✧ ⋆ ✧ ⋆ ✧ ⋆ ✧ ⋆ ✧ ⋆ ✧ ⋆ ✧ 
 
