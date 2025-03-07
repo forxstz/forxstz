@@ -1,4 +1,4 @@
-ﾟ｡⋆… `` Good evening, Welcome to the clinic. ,,
+ﾟ｡⋆… `` How much poison do you think they can handle!? ,,
 
 ✧ ⋆ ✧ ⋆ ✧ ⋆ ✧ ⋆ ✧ ⋆ ✧ ⋆ ✧ ⋆ ✧ ⋆ ✧ 
 
