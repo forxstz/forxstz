@@ -4,6 +4,7 @@
 
 ⋆ INFO ABOUT ME:
 
+- Please feel free to interact with me, don't be shy! ^_^
 - I am a minor, please be wary when you int with me.
 - Possible Medkit, Subspace, Shelly and Broken Spawn kin
 - I love roleplaying and being around other people!
