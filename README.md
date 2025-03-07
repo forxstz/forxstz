@@ -7,6 +7,7 @@
 - Please feel free to interact with me, don't be shy! ^_^
 - I am a minor
 - Possible Medkit, Subspace, Shelly and Broken Spawn kin
+- I dont mind cuddles, but i moreso prefer them from friends!
 - I love roleplaying and being around other people!
 - I love making gift skins !!
 - I am very forgetful at times, dont expect me to remember stuff man
