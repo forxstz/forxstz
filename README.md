@@ -17,3 +17,4 @@
 - I LOVE TO VC, I LOVE TO TALK!!!!!
 - I am INSANELY silly and cheerful, do not expect me to be srs unless im roleplaying, or if its a ACTUAL serious situation
 - please dni subkit and medhammer haters, please. i respect your opinion but do not shove your opinion in my face </3
+- Please please PLEASE stay on topic if we're in a conversation, dont just randomly start venting/ranting as i have a hard time sympathizing if i dont know you. Sorry.
